@@ -1,0 +1,1 @@
+# Huquq-test-2.Ulugbek.R
